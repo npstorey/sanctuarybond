@@ -50,7 +50,7 @@ In 1975, after President Gerald Ford rejected pleas for a bailout from a bankrup
 
 This simple idea of New Yorkers investing in the city’s future even stands underfoot of the Statue of Liberty. When the French government offered to commemorate the end of slavery and the Union victory in the Civil War with a statue of Lady Liberty, our war-ravaged government had no funds to build the pedestal needed to the statue to stand on. The funds were raised instead by some 120,000 donors, many of them immigrants, many contributing less than $1 each.
 
-![Image](https://c2.staticflickr.com/6/5564/15207018861_41ef09e387_b.jpg)
+![Image](https://www.nps.gov/stli/learn/historyculture/images/Three-Immigrants.jpg)
 
 We are proud of those immigrants. They are our grand-parents, our parents, our neighbors, ourselves. Now we raise the funds needed to defend the sanctuaries that defend the immigrants. Donate to the Sanctuary Bond Fund.  
 
