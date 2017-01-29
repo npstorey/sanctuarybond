@@ -3,8 +3,11 @@
 ![Image](https://upload.wikimedia.org/wikipedia/commons/9/9a/Welcome_to_the_land_of_freedom.png)
 
 New York City is a city of immigrants.
+
 New York City is a sanctuary city.
+
 Here, we stand up for each other.
+
 Here, we put our money where our mouth is.
 
 **DONATE TO THE SANCTUARY BOND FUND**
