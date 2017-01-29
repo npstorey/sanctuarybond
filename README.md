@@ -9,7 +9,7 @@ Here, we put our money where our mouth is.
 
 **DONATE TO THE SANCTUARY BOND FUND**
 
-President Donald Trump has threatened to withhold federal funding from cities that protect their immigrant citizens. The Sanctuary Bond Fund intends to replace every immorally withheld dollar with money pledged by New Yorkers.
+President Donald Trump has threatened to withhold federal funding from cities and states that protect their immigrant citizens. The Sanctuary Bond Fund intends to replace every immorally withheld dollar with money pledged by New Yorkers.
 
 1. We raise money as a reserve fund to replace federal funds threatened to be withheld to sanctuary cities, counties, or states, starting with New York City.
 
