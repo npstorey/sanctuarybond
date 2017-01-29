@@ -15,12 +15,12 @@ President Donald Trump has threatened to withhold federal funding from cities th
 
 You can show your support for Sanctuary Bonds by making a donation to our first campaign: Sanctuary Bond NYC. Every dollar will be given to **[organization]** until such time that sanctuary bonds are made official, and you’ll get a replica Sanctuary Bond in the mail. We’ll also send a replica Sanctuary Bond to your local elected representatives to build support for official Sanctuary Bonds.
 
-**[DONATE NOW]**
+**DONATE NOW**
 
 
 ## What is a Sanctuary Bond?
 
-A bond is money you loan to a local government like the City of New York, who holds the funds for a fixed period of time at a fixed interest rate. Bonds have been used in periods of [war] (https://en.wikipedia.org/wiki/War_bond) and [economic depression] (https://en.wikipedia.org/wiki/Municipal_Assistance_Corporation) as a way for wealthy and privileged people to make a low-risk investment in the long-term prosperity of their community by providing the funds needed for short-term projects.
+A bond is money you loan to a local government like the City of New York, who holds the funds for a fixed period of time at a fixed interest rate. Bonds have been used in periods of [war](https://en.wikipedia.org/wiki/War_bond) and [economic depression](https://en.wikipedia.org/wiki/Municipal_Assistance_Corporation) as a way for wealthy and privileged people to make a low-risk investment in the long-term prosperity of their community by providing the funds needed for short-term projects.
 
 Sanctuary Bonds will be financed by New Yorkers who know that our strength and ingenuity are intertwined with our diversity. These bonds will raise reserve funds in case of federal withholdings.
 
@@ -31,7 +31,7 @@ Sanctuary Bonds will be financed by New Yorkers who know that our strength and i
 
 Sanctuary Bonds don’t exist yet, but this is one way that they could work.
 
-As a New Yorker, you can buy one or many bonds. The bonds are based on the [social impact bond] (https://en.wikipedia.org/wiki/Social_impact_bond) model that only pay investors back if we achieve a desired social outcome. For Sanctuary Bonds, investors (mutual funds, unions, government pension systems) only get their money back if federal funding remains intact to sanctuary jurisdictions.
+As a New Yorker, you can buy one or many bonds. The bonds are based on the [social impact bond](https://en.wikipedia.org/wiki/Social_impact_bond) model that only pay investors back if we achieve a desired social outcome. For Sanctuary Bonds, investors (mutual funds, unions, government pension systems) only get their money back if federal funding remains intact to sanctuary jurisdictions.
 
 Repayment of the bond plus interest occurs if the Sanctuary Bond funds are not used in five years (due to successful political or legal challenges), or if withheld federal funds are returned by a subsequent administration in five years.
 
