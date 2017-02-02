@@ -1,4 +1,4 @@
-President Donald Trump has threatened to withhold federal funding to punish Sanctuary Cities. Sanctuary Bonds will allow New Yorkers to purchase a stake in the City of New York’s future, replacing every withheld dollar with a show of support for progressive immigration policies.
+Sanctuary Bonds will allow New Yorkers to demonstrate their support for Sanctuary City policies through investment in the City of New York, shoring up the city budget in case of retaliatory federal defunding.
 
 ## What is a Sanctuary Bond?
 
