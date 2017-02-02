@@ -20,4 +20,4 @@ This simple idea of New Yorkers investing in the city’s future even stands und
 
 We are proud of those immigrants. They are our grand-parents, our parents, our neighbors, ourselves. Now we raise the funds needed to defend our city, so it may always remain a sanctuary.
 
-[Talk to us.](mailto:sanctuarybond@gmail.com)
+[Contact the Sanctuary Bond Fund.](mailto:sanctuarybond@gmail.com)
