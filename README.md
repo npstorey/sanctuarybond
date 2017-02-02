@@ -46,6 +46,8 @@ Until official Sanctuary Bonds exist, we are pledging to raise the first $1 mill
 
 ## Tell me some inspirational history?
 
+![Image](https://c1.staticflickr.com/3/2360/2246591929_42d30c9632.jpg)
+
 In 1975, after President Gerald Ford rejected pleas for a bailout from a bankrupt New York City, bonds issued through the Municipal Assistance Corporation in New York provided a lifeline for the city out of financial ruin. Bonds built the Brooklyn Bridge, the Triborough Bridge, the Second Avenue Subway and much more of New York.
 
 This simple idea of New Yorkers investing in the city’s future even stands underfoot of the Statue of Liberty. When the French government offered to commemorate the end of slavery and the Union victory in the Civil War with a statue of Lady Liberty, our war-ravaged government had no funds to build the pedestal needed to the statue to stand on. The funds were raised instead by some 120,000 donors, many of them immigrants, many contributing less than $1 each.
