@@ -10,7 +10,7 @@ Call Mayor Bill de Blasio’s office at (212) 788-1400. Here’s what you should
 
 >I am New Yorker and I want the City of New York to be financially sound in protecting our immigrant citizens. Please create Sanctuary Bonds that allow New Yorkers like me to invest in the future of our diverse city of immigrants.
 
-After you’ve called Mayor de Blasio, you can also call City Comptroller Scott Stringer at (212) 669-3916, Public Advocate Letitia James at (212) 669-7250 and City Council Speaker Melissa Mark-Viverito at 347-297-4922. You should share this page on **Facebook** and on **Twitter**. You can also **email** it to your friends.
+After you’ve called Mayor de Blasio, you can also call City Comptroller Scott Stringer at (212) 669-3916, Public Advocate Letitia James at (212) 669-7250 and City Council Speaker Melissa Mark-Viverito at 347-297-4922.
 
 ##  Tell me some inspirational history?
 
@@ -19,3 +19,5 @@ In 1975, New York City was bankrupt. After President Gerald Ford refused to bail
 This simple idea of New Yorkers investing in the city’s future even stands underfoot of the Statue of Liberty. The funds the purchase the Lady Liberty’s pedestal were raised by some 120,000 donors, many of them immigrants, many contributing less than $1 each.
 
 We are proud of those immigrants. They are our grand-parents, our parents, our neighbors, ourselves. Now we raise the funds needed to defend our city, so it may always remain a sanctuary.
+
+[Talk to us.](mailto:sanctuarybond@gmail.com)
