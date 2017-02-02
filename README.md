@@ -2,7 +2,7 @@ Sanctuary Bonds will allow New Yorkers to demonstrate their support for Sanctuar
 
 ## What is a Sanctuary Bond?
 
-A bond is money you loan to a local government, who holds the funds for a fixed period of time at a fixed interest rate. Sanctuary Bonds will be financed by New Yorkers who know that our strength and ingenuity are intertwined with our diversity. These bonds will raise reserve funds in case of federal withholdings.
+A bond is money you loan to a local government, which holds the funds for a fixed period of time at a fixed interest rate. Sanctuary Bonds will be financed by New Yorkers who know that our strength and ingenuity are intertwined with our diversity. These bonds will raise reserve funds in case of federal withholdings.
 
 ## Great idea! How can I help?
 
