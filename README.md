@@ -1,8 +1,8 @@
-Sanctuary Bonds will allow New Yorkers to demonstrate their support for Sanctuary City policies through investment in the City of New York, shoring up the city budget in case of retaliatory federal defunding.
+Sanctuary Bonds would allow New Yorkers to demonstrate their support for Sanctuary City policies through investment in the City of New York, shoring up the city budget in case of retaliatory federal defunding.
 
 ## What is a Sanctuary Bond?
 
-A bond is money you loan to a local government, which holds the funds for a fixed period of time at a fixed interest rate. Sanctuary Bonds will be financed by New Yorkers who know that our strength and ingenuity are intertwined with our diversity. These bonds will raise reserve funds in case of federal withholdings.
+A bond is money you loan to a local government, which holds the funds for a fixed period of time at a fixed interest rate. Sanctuary Bonds -- which don't exist yet -- would be financed by New Yorkers who know that our strength and ingenuity are intertwined with our diversity. These bonds will raise reserve funds in case of federal withholdings.
 
 ## Great idea! How can I help?
 
